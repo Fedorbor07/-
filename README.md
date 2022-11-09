@@ -1,5 +1,5 @@
 Подарки на нг:
-1) пояльник ts100 + жало ts - l
-2) корпус Компьютерный корпус Deepcool CK560 WH + 3 вентилятора Arctic p120 wh and 1 вентилятор Arctic f120 wh 
+1) пояльник ts100(BC2 Tips with Supply) + жало TS-I 
+2) корпус Компьютерный корпус Deepcool CK560 WH + 3 вентилятора ARCTIC BioniX P120 (Grey/White) и 1 вентилятор ARCTIC BioniX P120 (Grey/White)
 3) усилитель для наушников fiio k5 pro
 4)...

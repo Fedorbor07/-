@@ -9,5 +9,5 @@
 
 ДОРОГИЕ:
 1. корпус Компьютерный корпус Deepcool CK560 WH + 3 вентилятора ARCTIC BioniX P120 (Grey/White) и 1 вентилятор ARCTIC BioniX P120 (Grey/White);
-2. усилитель для наушников fiio k5 pro;
-3. паяльник ts101 (BC2 Tips with Supply) + жало TS-I ;
+2. усилитель для наушников fiio k5 pro (не очень нужен, сломались наушники);
+3. паяльник ts101 (BC2 Tips with Supply) + жало TS-I (не очень нужен) ;
